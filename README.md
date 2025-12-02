@@ -4,6 +4,8 @@
 
 [gunslol](https://guns.lol/karinyan) [rentry]([rentry.co/mizusake](https://rentry.co/mizisuake))
 
+i, too, stretch for the light. is your yearning so different?
+
 
 <!--
 **sapIing/sapIing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
