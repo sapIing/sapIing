@@ -2,7 +2,7 @@
 
 i, too, stretch for the light. is your yearning so different?
 
-![Image](https://github.com/user-attachments/assets/be10b3c1-159d-4f04-80d2-a8dd7a5f851a)
+![Image](https://github.com/user-attachments/assets/3ea25a8c-59e1-4b87-b238-e1f2aad0fd3e)
 
 [gunslol](https://guns.lol/karinyan) [rentry](https://rentry.co/mizisuake)
 
