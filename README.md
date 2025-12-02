@@ -1,3 +1,7 @@
+<div align="center">
+
+![Image](https://github.com/user-attachments/assets/be10b3c1-159d-4f04-80d2-a8dd7a5f851a)
+
 [gunslol](https://guns.lol/karinyan) [rentry]([rentry.co/mizusake](https://rentry.co/mizisuake))
 
 
