@@ -1,4 +1,5 @@
-ill keep u my dirty little secret
+[gunslol](https://guns.lol/karinyan) [rentry](rentry.co/mizusake)
+
 
 <!--
 **sapIing/sapIing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
