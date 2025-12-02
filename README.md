@@ -1,6 +1,6 @@
 <div align="center">
 
-i, too, stretch for the light. is your yearning so different?
+for one, i am a sapling. i, too, stretch for the light. is your yearning so different?
 
 ![Image](https://github.com/user-attachments/assets/3ea25a8c-59e1-4b87-b238-e1f2aad0fd3e)
 
