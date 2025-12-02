@@ -8,7 +8,7 @@ i, too, stretch for the light. is your yearning so different?
 
 <div align="right">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=uwmluhllowdcg5t2vrib69gkx&cover_image=true&theme=default&show_offline=false&background_color=ffccd9&interchange=true&profanity=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
+
 <!--
 **sapIing/sapIing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
