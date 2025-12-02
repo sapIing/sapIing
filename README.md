@@ -1,4 +1,4 @@
-[gunslol](https://guns.lol/karinyan) [rentry](rentry.co/mizusake)
+[gunslol](https://guns.lol/karinyan) [rentry]([rentry.co/mizusake](https://rentry.co/mizisuake))
 
 
 <!--
